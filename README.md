@@ -1,1 +1,0 @@
-# kuzenler-tesisat
